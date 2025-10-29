@@ -1,0 +1,1 @@
+# EdgeFinder-Privacy-Policy
